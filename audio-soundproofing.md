@@ -20,9 +20,7 @@
 * [Как снимается обшивка двери на Volvo XC60](https://www.youtube.com/watch?v=8fC7yPXgvYA)
 * [Volvo S60 2012 Разборка - снятие дверной карты](https://www.youtube.com/watch?v=CFNPW0gwzY4)
 * [Как разобрать дверь Volvo XC60 XC70 s80 v70](https://www.youtube.com/watch?v=pNBjfdNghYk)
-* [Снятие карта двери volvo s60](https://www.youtube.com/watch?v=mt2419CPSsM)
----
-* [VOLVO XC60 – ЭЛЕКТРИКА | Это по-любому сломается в твоем Вольво XC60](https://www.youtube.com/watch?v=KJfke_MD55Q)
+* [Очень подробная разборка двери Volvo XC70](https://youtu.be/YVUhkxQ1A-M)
 
 
 ### Установка Premium Sound
